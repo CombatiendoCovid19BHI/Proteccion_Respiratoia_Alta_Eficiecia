@@ -1,4 +1,4 @@
-# Proteccion_Respiratoia_Alta_Eficiecia
+# Proteccion_Respiratoria_Alta_Eficiecia
 PROTECCIÓN RESPIRATORIA DE ALTA EFICIENCIA (99,97%) REUSABLE y accesorios de uso y mantenimiento.
 
 IMPORTANTE:
