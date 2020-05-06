@@ -12,9 +12,13 @@ SU USO ES BAJO SU PROPIO RIESGO! Y RESPONSABILIDAD! Las máscaras 3M ya vienen l
 todo accesorio que se le incorpore podría invalidar garantías o generar un funcionamiento defectuoso.
 
 ✔️ Diseño 3D
+
 Bruno Andrenacci
 
 ✔️ Colaboradores
+
 Luis Maenza
+
 Rodrigo Iglesias Pin
+
 Ma. Eloísa Tourret
