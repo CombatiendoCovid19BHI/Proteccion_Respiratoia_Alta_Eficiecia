@@ -15,7 +15,6 @@ todo accesorio que se le incorpore podría invalidar garantías o generar un fun
 Bruno Andrenacci
 
 ✔️ Colaboradores: 
-
 Luis Maenza, 
 Rodrigo Iglesias Pin, 
 Ma. Eloísa Tourret.
