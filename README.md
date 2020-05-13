@@ -19,8 +19,10 @@ Luis Maenza,
 Rodrigo Iglesias Pin.
 
 ➡️ Más info:
+
 https://drive.google.com/open?id=1K2bWTSzyo4rLhrSmF2a_MM5W89Mi0qvJY-DIcfMxSww
 
 
 ➡️ INGRESÁ A NUESTRO FACEBOOK Y ENTERATE DE TODOS NUESTROS PROYECTOS!
+
 https://www.facebook.com/CombatiendoCovid19BHI/
